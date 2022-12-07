@@ -1,0 +1,1 @@
+If you wish to delete user account data, you have to request us to delete your account. Subject to your Valodr user account is no longer required in the future, please send your request with account registered email to mkz.ice@gmail.com. Your account will be deleted and all data will no longer be saved.
